@@ -1,0 +1,2 @@
+# DAT-NEN-BINH-CHIEU-2
+ĐẤT NỀN BÌNH CHIỂU 2 NHÀ PHỐ THƯƠNG MẠI - QUẬN THỦ ĐỨC
